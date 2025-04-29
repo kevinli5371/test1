@@ -1,1 +1,1 @@
-Sea otters hold hands when they sleep to avoid drifting apart.
+The hashtag symbol used to be called the pound sign.
