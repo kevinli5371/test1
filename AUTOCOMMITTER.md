@@ -1,1 +1,1 @@
-created by autocommiter
+Sea otters hold hands when they sleep to avoid drifting apart.
