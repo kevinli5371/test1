@@ -1,1 +1,1 @@
-The hashtag symbol used to be called the pound sign.
+The total weight of all ants on Earth is roughly equal to that of all humans.
