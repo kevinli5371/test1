@@ -1,1 +1,1 @@
-Peanuts aren’t nuts — they’re legumes.
+The average person walks the equivalent of five times around the world in a lifetime.
