@@ -1,1 +1,1 @@
-The average person walks the equivalent of five times around the world in a lifetime.
+Chewing gum while cutting onions can help prevent tears.
