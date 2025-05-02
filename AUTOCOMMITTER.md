@@ -1,1 +1,1 @@
-Chewing gum while cutting onions can help prevent tears.
+You can’t sneeze with your eyes open.
