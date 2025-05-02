@@ -1,1 +1,1 @@
-You can’t sneeze with your eyes open.
+One spaghetti noodle is called a spaghetto.
